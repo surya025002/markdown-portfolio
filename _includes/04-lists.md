@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+🖤
+:heart:
+🌴
+:palm_tree:
+👍
+:+1:
+😄
+:smiley:
